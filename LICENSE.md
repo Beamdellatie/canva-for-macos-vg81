@@ -1,4 +1,4 @@
-
+Get the ultimate Canva for macOS template with new Template for Canva for macOS - vector export and custom brushes. Featuring vector export and custom brushes, it's the best
 
 
 
